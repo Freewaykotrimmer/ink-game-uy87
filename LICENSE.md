@@ -1,4 +1,4 @@
-#  
+#  ultimate ink game Script offers the most advanced ink game Script, with auto-sell and unlimited stamina. Perfect for dominating any match.
 
 
 
